@@ -1,1 +1,1 @@
-# mindfuck.tk
+http://mindfuck.tk/. 
